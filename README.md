@@ -1,8 +1,8 @@
 # cdnfly-
 
 
-需要最新版联系Tg:a2cdnfly
-
+需要最新版联系Tg:cdnflya
+https://t.me/cdnflya
 已删除后门 确保无后门稳定运行
 
 
